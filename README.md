@@ -8,7 +8,7 @@ Hello all and welcome to the Aletsch 2021 trip.
 Details
 -------
 
-**Dates:** Friday, July 23rd - Sunday, July 25th.
+**Dates:** Friday, July 23rd, 2021 - Sunday, July 25th, 2021.
 
 **Hotel:** [Hotel Alpina](https://www.alpinafiescheralp.ch/), Fiesheralp.
 
